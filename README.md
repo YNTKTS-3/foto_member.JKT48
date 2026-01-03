@@ -1,0 +1,1 @@
+# foto_member.JKT48
